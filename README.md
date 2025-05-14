@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @JuliaAgostinho
 - 👀 I’m interested in Fashion;
-- 🌱 I’m currently learning english;
-- 💞️ I’m looking to collaborate on with luxury brands;
-- 📫 How to reach me: Don't talk to me;
+- 🌱 I’m a very good enghlish speaker;
+- 💞️ I'm planning to create my own brand and be a good person for the world;
+- 📫 How to reach me: Just don't talk to me;
 - 😄 Pronouns: She/her.
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: No.
 
 <!---
 JuliaAgostinho/JuliaAgostinho is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
